@@ -1,4 +1,4 @@
-## Hi there 👋
+## (ﾉ´ヮ´)ﾉ*:･ﾟ✧
 
 <!--
 **emmyl-tech/emmyl-tech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
